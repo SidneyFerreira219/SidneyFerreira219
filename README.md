@@ -3,7 +3,7 @@
 - Atualmente faço curso técnico de infórmatica na instituição SENAI CTTI.
 - Procuro colaborar com meus conhecimentos adquiridos no curso e nesta plataforma.
 - Contato através do email: sidneyferreira219@gmail.com
-- Logo após o curso técnico, irei ingressar na faculdade de letras e jornalismo.
+- Logo após o curso técnico, irei ingressar na faculdade de letras e teologia.
   
 
 <!---
